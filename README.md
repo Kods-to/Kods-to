@@ -1,16 +1,15 @@
-### Hi there 👋
+Jetzt schnell und sicher Drogen kaufen bei https://kods.to
 
-<!--
-**Kods-to/Kods-to** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Schneller Versand
+Am Selben Tag
 
-Here are some ideas to get you started:
+Faire Preise
+Keiner ist Günstiger
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Top Qualität
+Überzeuge dich selber
+
+Sichere Zahlung
+Zahle Sicher mit BTC
+
+https://kods.to/
